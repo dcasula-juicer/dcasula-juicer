@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Damiano
+- 👀 I’m the product owner at @juicerhq
